@@ -1,1 +1,2 @@
-# 2022_wa_pisemka_rube-
+Adam Rubeš
+13.12.2022
